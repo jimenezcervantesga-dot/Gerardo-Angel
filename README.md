@@ -1,2 +1,5 @@
 # Gerardo-Angel
-UNAQ studiant IECSA, love cats
+UNAQ estudiante
+IECSA
+love cats
+Oaxaca god
